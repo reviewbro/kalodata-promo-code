@@ -1,4 +1,4 @@
-Kalodata Promo Code (January 2026): Get 10% Discount
+Kalodata Promo Code (February 2026): Get 10% Discount
 =================================================
 
 Are you on the hunt for a live Kalodata promo code to help you save money on the best TikTok Shop analytics tool in the market? Then you just landed in the right place.
