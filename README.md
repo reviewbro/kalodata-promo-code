@@ -69,7 +69,7 @@ Step 5: Select any plan you want and click BUY. Then apply the promo code NOAH
 
 Quick Note: If you go for annual subscription where you pay yearly, you will get additional 17% discount as well
 
-Your Kalodata discount code has been applied successfully (if you went for annual plan you just saved about to $200 on the Professional plan)
+Your Kalodata discount code has been applied successfully (if you went for annual plan you just saved about $200 on the Professional plan)
 
 Step 6: Select a payment option and go ahead to complete your purchase.
 
