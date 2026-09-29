@@ -14,15 +14,15 @@ Coupon
 
  [![](https://tipsonblogging.com/wp-content/plugins/wp-coupons-and-deals/assets/img/coupon-code-24.png) NOAH](https://tipsonblogging.com/kalodatatry "Click To Copy Coupon")
 
-Click on the promo code "NOAH", signup for your Kalodata free trial and apply on checkout to automatically get 10% off all plans. Subscribe annually and get additional 30% off. 
+Click on the promo code "NOAH", signup for your Kalodata free trial and apply on checkout to automatically get 10% off all plans. Subscribe annually and get additional 17% off. 
 
 10% off will be applied to your purchase automatically if you click through the button link or apply the Kalodata discount code on checkout.
 
-#### 10% + 30% Discount
+#### 10% + 17% Discount
 
-If you want to claim up to 40% discount, simply select the yearly plan instead of monthly. Automatically you get an additional 30% off.
+If you want to claim up to 40% discount, simply select the yearly plan instead of monthly. Automatically you get an additional 17% off.
 
-Click on the coupon code “NOAH“, create your free Kalodata account and apply on checkout to automatically get 10% off all plans. Subscribe annually and get additional 30% off.
+Click on the coupon code “NOAH“, create your free Kalodata account and apply on checkout to automatically get 10% off all plans. Subscribe annually and get additional 17% off.
 
 It’s no longer news that one of the smartest ways to save money on your favorite software and tools is taking good advantage of deals and discount/coupon codes.
 
@@ -67,7 +67,7 @@ Step 5: Select any plan you want and click BUY. Then apply the promo code NOAH
 
 ![kalodata promo code applied successfully](https://tipsonblogging.com/wp-content/uploads/2025/05/kalodata-promo-code-applied-successfully.png "kalodata promo code applied successfully")
 
-Quick Note: If you go for annual subscription where you pay yearly, you will get additional 30% discount as well
+Quick Note: If you go for annual subscription where you pay yearly, you will get additional 17% discount as well
 
 Your Kalodata discount code has been applied successfully (if you went for annual plan you just saved up to $240 on the Professional plan)
 
